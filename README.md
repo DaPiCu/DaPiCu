@@ -1,2 +1,2 @@
-# Hey, Dapicu Hier 👋
-[Hier](https://linktr.ee/dapicu) kannst du meine anderen Socials sehen 👀
+# Hey, Dapicu here 👋
+[Here](https://linktr.ee/dapicu) you can see my other socials 👀
